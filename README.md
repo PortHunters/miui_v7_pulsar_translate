@@ -1,0 +1,1 @@
+# miui_v7_pulsar_translate
